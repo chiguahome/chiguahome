@@ -1,6 +1,22 @@
 黑料吃瓜网最新地址👋(最新更新时间2023-08-15)
 
+黑料吃瓜免费App https://cgapp09.top
 
+黑料吃瓜网页版最新官网 https://cgd09.top
+
+黑料吃瓜备用线路1 https://cgd09.top
+
+黑料吃瓜备用线路2 https://cgg05.com
+
+黑料吃瓜永久地址（需科学⬆️网工具）
+https://998.su
+
+【强烈推荐】
+吃瓜TG频道： https://t.me/hlcgw
+
+吃瓜TG官方群 https://t.me/chiguawang
+
+🤝商务合作🤝请电报(Telegram)联系 https://t.me/chigua_00
 
 
 网址打不开？？？
