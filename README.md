@@ -4,9 +4,9 @@
 
 黑料吃瓜网页版最新官网 https://cgd09.top
 
-黑料吃瓜备用线路1 https://cgd09.top
+黑料吃瓜备用线路1 https://cgd07.top
 
-黑料吃瓜备用线路2 https://cgg05.com
+黑料吃瓜备用线路2 https://cgg09.top
 
 黑料吃瓜永久地址（需科学⬆️网工具）
 https://998.su
